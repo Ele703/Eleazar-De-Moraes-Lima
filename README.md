@@ -27,4 +27,9 @@ Each repository represents my progress and learning journey.
 
 ---
 
+🔗 linkedin.com/in/eleazar-de-moraes-lima-/
+📸 instagram.com/lim6._/
+🎵 tiktok.com/@eleazar.lima
+
+
 🇧🇷 *Made with dedication by Eleazar Junior*
